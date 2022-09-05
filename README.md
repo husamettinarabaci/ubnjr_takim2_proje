@@ -1,0 +1,1 @@
+# takim2_proje
